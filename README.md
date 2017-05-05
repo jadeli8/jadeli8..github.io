@@ -1,1 +1,1 @@
-# jadeli8..github.io
+# jadeli8.github.io
